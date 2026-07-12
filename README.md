@@ -3,9 +3,9 @@
 </p>
 
 <p align="center">
-❝ bye, bye, bye, sucker. you die, you die, you die, sucker. ❞
+<b>❝ bye, bye, bye, sucker. you die, you die, you die, sucker. ❞</b>
 </p>
-
+<hr>
 <p align="center">
 hi our names edward. we're 15 and our pronouns are he/him. we're a system
 </p>

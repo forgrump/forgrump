@@ -5,3 +5,7 @@
 <p align="center">
 ❝ bye, bye, bye, sucker. you die, you die, you die, sucker. ❞
 </p>
+
+<p align="center">
+hi our names edward. we're 15 and our pronouns are he/him. we're a system
+</p>

@@ -7,7 +7,7 @@
 </p>
 <hr>
 <p align="center">
-hi our names edward. we're 15 and our pronouns are he/him. we're a system
+hi our names edward. we're a minor and our pronouns are he/him. we're a system
 </p>
 
 <p align="center">
@@ -27,7 +27,7 @@ youre younger than 14 and older than 20. basic dni as well. anyone open about th
 </p>
 <hr>
 <p align="center">
-ok bye
+ok bye also i own rcw
 </p>
 
 <p align="center">

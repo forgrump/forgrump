@@ -5,6 +5,11 @@
 <p align="center">
 <b>❝ bye, bye, bye, sucker. you die, you die, you die, sucker. ❞</b>
 </p>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rfewbjyjfv7iq6aykzm2fuyg4q&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
 <hr>
 <p align="center">
 hi our names edward. we're a minor and our pronouns are he/him. we're a system

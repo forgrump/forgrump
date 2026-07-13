@@ -40,5 +40,5 @@ ok bye also i own rcw
 </p>
 
 <p align="center">
-<small>art by necroounicorn on tumblr</small>
+<sub><sup>art by necroounicorn on tumblr</sup></sub>
 </p>

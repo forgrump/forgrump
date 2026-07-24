@@ -28,7 +28,7 @@ hi our names edward. we're a minor and our pronouns are he/him. we're a system
 </p>
 
 <p align="center">
-youre younger than 14 and older than 20. basic dni as well. anyone open about their paraphilias online. proship, profic, darkship, etc. zionists. anti zenogenders and neopronouns. system fakeclaimers. endo systems. DEFENDERS of Melanie Martinez, Sabrina Carpenter, Taylor Swift, Katy Perry, Kanye West, Jimmy Urine, Drake, and other problematic singers and artists. tcoaal fans. alfreds playhouse fans. radqueers, including lesboys and gaybians, etc. also probably more so if i dont like you ill just block you.
+youre younger than 14 and older than 25. basic dni as well. anyone open about their paraphilias online. proship, profic, darkship, etc. zionists. anti zenogenders and neopronouns. system fakeclaimers. endo systems. DEFENDERS of Melanie Martinez, Sabrina Carpenter, Taylor Swift, Katy Perry, Kanye West, Jimmy Urine, Drake, and other problematic singers and artists. tcoaal fans. alfreds playhouse fans. radqueers, including lesboys and gaybians, etc. also probably more so if i dont like you ill just block you.
 
 also, dni if all youre gonna fucking do is cause drama. im so fucking sick of the ponytown community. i dont want to be involved in anything.
 </p>

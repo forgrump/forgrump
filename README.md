@@ -12,7 +12,7 @@
 </p>
 <hr>
 <p align="center">
-hi our names edward. we're a minor and our pronouns are he/him. we're a system. no John Cena is not my fav wrestler, Cody Rhodes, i just happen to be recognized as John on pt
+hi our names edward. we're a minor and our pronouns are he/him. we're a system. no John Cena is not my fav wrestler, Cody Rhodes is, i just happen to be recognized as John on pt
 </p>
 
 <p align="center">

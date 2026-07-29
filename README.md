@@ -1,9 +1,9 @@
 <p align="center">
-<img width="869" height="705" alt="image" src="https://github.com/user-attachments/assets/e24aad0e-3420-4904-8a62-a73be8f42072" >
+<img width="680" height="383" alt="image" src="https://media.discordapp.net/attachments/1430364443522367611/1532048391524188280/202aafe47ed002f53c57a74792aba7bd.png?ex=6a6b6ec0&is=6a6a1d40&hm=b661a0f43bd790ff82e1ec7d65483af24d37c0d2259782a0d4c05bd4c3b082a5&=&format=webp&quality=lossless" >
 </p>
 
 <p align="center">
-<b>❝ bye, bye, bye, sucker. you die, you die, you die, sucker. ❞</b>
+<b>❝ in case you forgot or fell off , im still hot , knock your shell off. ❞</b>
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -12,7 +12,7 @@
 </p>
 <hr>
 <p align="center">
-hi our names edward. we're a minor and our pronouns are he/him. we're a system
+hi our names edward. we're a minor and our pronouns are he/him. we're a system. no John Cena is not my fav wrestler, Cody Rhodes, i just happen to be recognized as John on pt
 </p>
 
 <p align="center">
@@ -40,9 +40,5 @@ ok bye also i own rcw
 </p>
 
 <p align="center">
-<img width="2048" height="1441" alt="image" src="https://github.com/user-attachments/assets/fbc9148c-d0a6-4246-8f48-a5c5d1ef77aa" >
-</p>
-
-<p align="center">
-<sub><sup>art by necroounicorn on tumblr</sup></sub>
+<img width="1200" height="674" alt="image" src="https://media.discordapp.net/attachments/1430364443522367611/1532049703540359278/28bef86f019fb48c07601ebb164a89e9.png?ex=6a6b6ff9&is=6a6a1e79&hm=8e80dfc41a2c4e8111be1b18476fb9f1f39dd0208f64129022ed25f4d857f424&=&format=webp&quality=lossless&width=1070&height=601" >
 </p>

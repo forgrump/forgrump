@@ -1,5 +1,5 @@
 <p align="center">
-<img width="680" height="383" alt="image" src="https://media.discordapp.net/attachments/1430364443522367611/1532048391524188280/202aafe47ed002f53c57a74792aba7bd.png?ex=6a6b6ec0&is=6a6a1d40&hm=b661a0f43bd790ff82e1ec7d65483af24d37c0d2259782a0d4c05bd4c3b082a5&=&format=webp&quality=lossless" >
+<img width="680" height="383" alt="image" src="https://i.postimg.cc/vBdDCf94/202aafe47ed002f53c57a74792aba7bd.png" >
 </p>
 
 <p align="center">
@@ -36,9 +36,9 @@ also, dni if all youre gonna fucking do is cause drama. im so fucking sick of th
 </p>
 <hr>
 <p align="center">
-ok bye also i own rcw
+ok bye also i made rcw
 </p>
 
 <p align="center">
-<img width="1200" height="674" alt="image" src="https://media.discordapp.net/attachments/1430364443522367611/1532049703540359278/28bef86f019fb48c07601ebb164a89e9.png?ex=6a6b6ff9&is=6a6a1e79&hm=8e80dfc41a2c4e8111be1b18476fb9f1f39dd0208f64129022ed25f4d857f424&=&format=webp&quality=lossless&width=1070&height=601" >
+<img width="1200" height="674" alt="image" src="https://i.postimg.cc/bryrwPmH/28bef86f019fb48c07601ebb164a89e9.png" >
 </p>

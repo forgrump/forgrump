@@ -28,7 +28,7 @@ hi our names edward. we're 15 and our pronouns are he/him. we're a system. no Jo
 </p>
 
 <p align="center">
-Moon. if youre younger than 14 and older than 25. basic dni as well. anyone open about their paraphilias online. proship, profic, darkship, etc. zionists. anti zenogenders and neopronouns. system fakeclaimers. endo systems. DEFENDERS of Melanie Martinez, Sabrina Carpenter, Taylor Swift, Katy Perry, Kanye West, Jimmy Urine, Drake, and other problematic singers and artists. tcoaal fans. alfreds playhouse fans. radqueers, including lesboys and gaybians, etc. also probably more so if i dont like you ill just block you.
+Moon. anyone who supports Tanner, is his friend, or Tanner himself. if youre younger than 14 and older than 25. basic dni as well. anyone open about their paraphilias online. proship, profic, darkship, etc. zionists. anti zenogenders and neopronouns. system fakeclaimers. endo systems. DEFENDERS of Melanie Martinez, Sabrina Carpenter, Taylor Swift, Katy Perry, Kanye West, Jimmy Urine, Drake, and other problematic singers and artists. tcoaal fans. alfreds playhouse fans. radqueers, including lesboys and gaybians, etc. also probably more so if i dont like you ill just block you.
 </p>
 
 <p align="center">

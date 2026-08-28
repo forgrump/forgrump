@@ -31,9 +31,6 @@ hi our names edward. we're 15 and our pronouns are he/him. we're a system. no Jo
 stop harassing me and Xylo. grins so wide
 </p>
 
-<p align="center">
-also, dni if all youre gonna fucking do is cause drama. im so fucking sick of the ponytown community. i dont want to be involved in anything.
-</p>
 <hr>
 <p align="center">
 ok bye also i made rcw

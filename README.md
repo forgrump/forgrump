@@ -13,18 +13,23 @@
 <hr>
 <p align="center">
 hi our names edward. we're 15 and our pronouns are he/him. we're a system. no John Cena is not my fav wrestler, Cody Rhodes is, i just happen to be recognized as John on pt
+</p>
 
+<p align="center">
 ⛔ = active, on tab. all focus is on ponytown. (very rare, usually only used during regi events)
+</p>
+
+<p align="center">
 🌙 = completely off tab or semi-off tab. w2i w me
 
 </p>
-
+<hr>
 <p align="center">
 <b>what do we like?</b>
 </p>
 
 <p align="center">
-<strong>WWE, psychology, Danganronpa, Red Dead Redemption,</strong> Animal Hospital, undertale, deltarune, The Amazing Digital Circus, Moral Orel, <strong>DC, Gotham,</strong> Harry Potter, horses, westerns, kandi/scene culture, Sanrio, Despicable Me, Ace Attorney, Wicked, Hamilton, 25th Annual Putnam County Spelling Bee, The Simpsons, <strong>Call of Duty: Zombies,</strong> writing, <strong>art,</strong> WW2 history, nature, cosplaying, and <strong>yumeshipping</strong>
+<strong>WWE, psychology, Danganronpa, Red Dead Redemption,</strong> Animal Hospital, Dandys World, undertale, deltarune, The Amazing Digital Circus, Moral Orel, <strong>DC, Gotham,</strong> Harry Potter, horses, westerns, kandi/scene culture, Sanrio, Despicable Me, Ace Attorney, Wicked, Hamilton, 25th Annual Putnam County Spelling Bee, The Simpsons, <strong>Call of Duty: Zombies,</strong> writing, <strong>art,</strong> WW2 history, nature, cosplaying, and <strong>yumeshipping</strong>
 </p>
 <hr>
 <p align="center">

@@ -13,6 +13,10 @@
 <hr>
 <p align="center">
 hi our names edward. we're 15 and our pronouns are he/him. we're a system. no John Cena is not my fav wrestler, Cody Rhodes is, i just happen to be recognized as John on pt
+
+⛔ = active, on tab. all focus is on ponytown. (very rare, usually only used during regi events)
+🌙 = completely off tab or semi-off tab. w2i w me
+
 </p>
 
 <p align="center">
@@ -28,7 +32,7 @@ hi our names edward. we're 15 and our pronouns are he/him. we're a system. no Jo
 </p>
 
 <p align="center">
-stop harassing me and Xylo. grins so wide
+all you fucking dicks you keep trying to mess me. im not playing anymore fuck off
 </p>
 
 <hr>

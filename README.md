@@ -37,7 +37,7 @@ hi our names edward. we're 15 and our pronouns are he/him. we're a system. no Jo
 </p>
 
 <p align="center">
-all you fucking dicks you keep trying to mess me. im not playing anymore fuck off
+please dni if youre associated with certain regiments/groups and/or people . yk who you are . if youre really curious if you are one of these people , dm me
 </p>
 
 <hr>

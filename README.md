@@ -33,11 +33,11 @@ hi our names edward. we're 15 and our pronouns are he/him. we're a system. no Jo
 </p>
 <hr>
 <p align="center">
-<b>dni</b>
+<b>NOTE</b>
 </p>
 
 <p align="center">
-please dni if youre associated with certain regiments/groups and/or people . yk who you are . if youre really curious if you are one of these people , dm me
+please check my ata, even if you are not going to sign it. it has important information on Xylo because he is actively silencing me and others
 </p>
 
 <hr>
